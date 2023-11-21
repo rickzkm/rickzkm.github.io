@@ -1,2 +1,2 @@
 # rickzkm.github.io
-Welcome
+Content marketing strategy specialist. Let's sell more!
